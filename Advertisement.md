@@ -4,10 +4,10 @@
 
 ## Product Benefits
 * Improves Physical Endurance 
+  * Improves reaction speed and concentration
 * Improves overall feeling of well being
-* Improves reaction speed and concentration
 * Increases Mental Alertness
-* stimulats motabolism and helps ekiminate wates substances
+* Stimulats motabolism and helps ekiminate wates substances
 
 
 
