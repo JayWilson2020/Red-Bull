@@ -5,8 +5,8 @@
 ## Product Benefits
 * Improves Physical Endurance 
   * Improves reaction speed and concentration
-* Improves overall feeling of well being
 * Increases Mental Alertness
+  * Improves overall feeling of well being
 * Stimulats motabolism and helps ekiminate wates substances
 
 
