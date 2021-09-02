@@ -2,6 +2,9 @@
 
 ![Red Bull slogan](https://static-01.daraz.pk/p/6ff4287d57e718add9fd0b7b25e69cd2.jpg_200x200q80.jpg_.webp)
 
+## Redbull’s Origin
+
+The company was founded by Dietrich Mateschitz and Chaleo Yoovidhya in Fuschl am See, Austria. The company was created when the austrian entrepreneur Dietrich Mateschitz was inspired by an existing energy drink in thailand called Krating Daeng. Krating Daeng was sold by the businessman Chaleo Yoovidhya who would go on to become a co-founder of [Redbull GmbH](https://www.redbull.com/us-en/energydrink/company-profile).
 
 
 
