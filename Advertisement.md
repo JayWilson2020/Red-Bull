@@ -4,7 +4,11 @@
 
 
 
-Production* - production and filling take place at the same location which brings enormous environmental benefits.- The transport of aluminium cans saves 40% space compared to glass bottles.- 50% energy saving due to new technology - New technology can be implemented quickly, which contributes to conserving natural resources
+Production:
+- Production and filling take place at the same location which brings enormous environmental benefits
+- The transport of aluminium cans saves 40% space compared to glass bottles
+- 50% energy saving due to new technology
+- New technology can be implemented quickly, which contributes to conserving natural resources
 
 
 
